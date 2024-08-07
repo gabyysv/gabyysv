@@ -1,5 +1,6 @@
 ## oii!
 
 - organização e compartilhamento de projetos desenvolvidos.
-  
-  ![](https://tenor.com/bHvOUbNziir.gif)
+
+
+  ![](https://media1.tenor.com/m/Eemr9meKsSkAAAAC/my-reaction-to-that-information-fight-club.gif)
